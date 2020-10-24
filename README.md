@@ -1,0 +1,1 @@
+This recipe is how to make Raita. You can use this over any food such as rice.
